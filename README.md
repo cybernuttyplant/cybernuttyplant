@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cybernuttyplant
+- 👀 I’m interested in coding, learning and games
+- 🌱 I’m currently learning html, css
+- 📫 How to reach me: discord; cybernuttyplant#4015
